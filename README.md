@@ -1,4 +1,4 @@
-# custom-protective-packaging-in-Tustin | Bluerose Packaging
+# Custom Protective Packaging in Tustin | Bluerose Packaging
 
 Secure your products with custom protective packaging in Tustin. Bluerose Packaging delivers durable, made-to-fit packaging with fast local service and competitive wholesale pricing.
 
